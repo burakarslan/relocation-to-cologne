@@ -31,16 +31,18 @@ https://www.brutto-netto-rechner.info/gehalt/gross_net_calculator_germany.php#
 2- passport 
 3- Marriage Certificate - if you are married
 4- Birth Certificate - If there are any children
-
 dont forget to ask for a Meldebescheinigung at the end of registiration. Do not lose it or you need to pay 9 euros to get new one. 
 
-
 ### how to apply for residence permit
-
-
 ### Liability Insurance 
-
 ### anmeldung  
+### The public broadcasting tax 
+2-3 weeks after register yourself to citizens office aka anmeldung; you will recieve a letter from ARD ZDF Deutschlandradio Beitragsservice for tax payment.
+uni-mannheim has already great manual. Just follow it.
+https://www.uni-mannheim.de/media/Einrichtungen/Welcome_Center/Dokumente/Downloads/Rundfunkgebuehrinformation_2018_en_Tutorial_Homepage.pdf 
+faq:
+1- I dont have any tv/radio. - You have to pay it.
+2- I'm living with my family/partner/friend. Do we pay seperatly ? - No, only one people pay per household.
  
 
 ## Safety tips 

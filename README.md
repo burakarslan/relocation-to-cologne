@@ -55,5 +55,13 @@ wip
 ### Kindergelt 
 wip 
 
+###  Family Activities
+
+https://tripsdrill.de/en/
+
+### nice places to see
+
+https://de.wikipedia.org/wiki/Brauweiler_(Pulheim) 
+
 
 
